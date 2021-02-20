@@ -3,7 +3,7 @@
 **NikhithaUppalapati** 
 
 - I'm currently working/studying...  
-- Student
+-as Student
 -  
 - 🌱 I’m currently learning ...  
 - Computer science engg  
